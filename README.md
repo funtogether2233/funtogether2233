@@ -1,4 +1,4 @@
-Hi there, I'm FunTogether.
+Hi there, I'm 同乐.
 
 This guy is studying hard in the hope that one day he will fill this page and bring happiness to others.
 
