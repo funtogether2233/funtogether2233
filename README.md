@@ -1,4 +1,4 @@
-Hi there, I'm funtogether2233.
+Hi there, I'm FunTogether.
 
 This guy is studying hard in the hope that one day he will fill this page and bring happiness to others.
 
